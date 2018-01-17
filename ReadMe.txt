@@ -3,3 +3,7 @@ Physics major, German Minor (sprich Deutsch mit mich)
 Senior year
 Clinton Townshp, MI
 MY only programming background is CMSE_201
+
+Nate Olson
+
+olsonna3@msu.edu
